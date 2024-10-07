@@ -2,7 +2,7 @@ Paul
 
 computer basics?
 
-Java ig, pretty much everything-
+Java ig, pretty much everything- + more
 
 retail
 
